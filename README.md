@@ -1,0 +1,1 @@
+Zinger is not just a food delivery platform; it is a comprehensive solution designed to revolutionize the way customers order food, restaurants manage their operations, and delivery partners fulfill orders. With its user-centric approach and innovative features, Zinger is set to become a leader in the food delivery industry.
